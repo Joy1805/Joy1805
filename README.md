@@ -1,4 +1,4 @@
-# Hi there, I am Joy Mago! 👋
+# Hi there, I am Joy 👋
 
 An experienced Business Analyst with a passion for data and over a decade of experience across various sectors such as Public sector, Aviation, Retail, Logistics, Supply Chain, Higher Education, and Financial Services. 
 
